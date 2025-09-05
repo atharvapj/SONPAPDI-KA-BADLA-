@@ -31,13 +31,14 @@ Playable in browser
 
 Credits
 
-Development & Story: [Your Team Name]
+Development & Story: Team sonpapdi
 
-Graphics & Design: [Your Team Name]
+Graphics & Design: team sonpapdi
 
 🎮 Play Now!
 
 Click the big link below to play the game:
 
 ➡️ PLAY SOAN PAPDI ESCAPES HERE
+
 
