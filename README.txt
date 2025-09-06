@@ -2,11 +2,12 @@ The great papdi run
 https://gd.games/games/ff933961-cdbe-464a-838c-b4ab51890474
 Game Overview
 
-Soan Papdi Escapes is an exciting platformer where you guide Soan Papdi, a daring sweet, as she tries to escape a hungry man! Jump through mazes, dodge pesky flies, and discover hidden paths as you journey through challenging levels.
+Soan Papdi Escapes is an exciting platformer where you guide Soan Papdi, a daring sweet, as she tries to escape a hungry man! Jump through mazes, dodge pesky flies
 
 Story
 
-Soan Papdi narrowly escapes a man who wants to devour her. She travels through complex mazes, avoids obstacles, and falls into a sewer maze. There, she discovers a whole new world full of surprises and adventures!
+Soan Papdi narrowly escapes a man who wants to devour her. She travels through lallan halwai shop , avoids flies . There, she discovers a whole new world full of surprises and adventures!,The story takes you into an imaginative world where you see that an insignificant thing like a soan papdi sweet, can also have just as wide and imaginative world. 
+It helps us in finding fun in the most mundane things
 
 Gameplay Mechanics
 
@@ -38,9 +39,12 @@ Graphics & Design: team sonpapdi
 
 🎮 Play Now!
 
-Click the big link below to play the game:
+Click the  link below to play the game: 
 
-➡️ PLAY SOAN PAPDI ESCAPES HERE
+https://gd.games/games/ff933961-cdbe-464a-838c-b4ab51890474
+
+
+
 
 
 
